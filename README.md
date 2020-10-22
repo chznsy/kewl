@@ -34,3 +34,7 @@ YOU DONT RLLY WANT HIM
 U DONT RLLY WANT HIM, BBY
 WAIT YOUR TURN LOVE HURTS
 ITS JUST THE WAY IT IS
+
+It's been a long day 
+To tell you my friend
+and I'll tell you all about it when I see you again
