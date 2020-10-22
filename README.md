@@ -2,6 +2,11 @@
 boo
 
 
+
+
+THIS IS A KARAOKE PARTY
+
+
 IT"S KAACHI!!!!
 
 I DONT NEED TO KNOW
